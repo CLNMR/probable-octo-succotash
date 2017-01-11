@@ -1,2 +1,2 @@
 # probable-octo-succotash
-Strange things...
+Strange things... to do and see :D
